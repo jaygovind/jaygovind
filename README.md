@@ -1,7 +1,7 @@
 # Hi there, I'm Jay Govind Chauhan 😃
 
-📧 jaygovindchauhan759@gmail.com  
-📞 +91 9501684016  
+📧 Find me on upwork:- jay govind chauhan ( https://www.upwork.com/freelancers/~01a9ce37a89413e691 )
+
 
 ---
 
